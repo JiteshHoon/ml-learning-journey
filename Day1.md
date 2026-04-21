@@ -11,3 +11,7 @@ Learned:
 
 Confused me:
 - nothing confused me
+
+Sources:
+https://youtu.be/gb5nm_3jBIo?si=2eDAosQ6x9iGhfGT
+https://youtu.be/BZ10SGWtU-s?si=1oVlKo4BuoDQOTpW
